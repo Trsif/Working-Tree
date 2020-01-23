@@ -7,3 +7,5 @@ My name is Tristan Favard I am a junior developer that is trying his best to cre
 
 
 More files comming soon
+
+Collaboration at it's finest!!
